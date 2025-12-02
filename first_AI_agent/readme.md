@@ -1,0 +1,1 @@
+https://medium.com/@nirdiamant21/your-first-ai-agent-simpler-than-you-think-999c28351a2a
